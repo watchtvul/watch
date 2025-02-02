@@ -1,8 +1,11 @@
-Salernitana-Cremonese come e dove vederla: Sky o DAZN? Canale tv, diretta streaming, formazioni e orario
-Partita valevole per la 24a giornata della Serie B BKT 2024/2025
-Salernitana-Cremonese è una partita valevole per la 24a giornata del campionato di calcio di Serie B 2024-25. Il match vede di fronte la Salernitana che attualmente si trova al 18° posto in classifica con 21 punti e la Cremonese che invece è al 4° posto in classifica con 37 punti.
+Salernitana-Cremonese: diretta live e risultato in tempo reale
+Posted on 2 Febbraio 2025 by Marina Denegri 0 0
+Salernitana Cremonese cronaca diretta live risultato in tempo reale
 
-La Salernitana ha ottenuto finora 5 vittorie, 6 pareggi e 12 sconfitte, ha segnato complessivamente 22 gol e ne ha subiti 33. Il giocatore che ha segnato più gol è Alberto Cerri con 3 reti.
-La Cremonese ha ottenuto finora 10 vittorie, 7 pareggi e 6 sconfitte, ha segnato complessivamente 34 gol e ne ha subiti 24. Il giocatore che ha segnato più gol è Franco Vázquez con 9 reti.
+Diretta Salernitana-Cremonese di Domenica 2 febbraio 2025: formazioni e tabellino. Dove vedere in tv e in streaming la partita di Serie B
+SALERNO – Domenica 2 febbraio, allo Stadio “Arechi” di Salerno, andrà in scena Salernitana-Cremonese, gara valida per la ventiquattresima giornata del campionato di Serie B 2024-2025. Calcio di inizio alle ore 15. I campani arrivano dallo stop esterno di misura contro il Pisa e sono penultimi, a pari merito con il Frosinone, con 21 punti, frutto di quattro vittorie, sei pareggi e dodici stop, ventidue gol fatti e trentatré subiti.
 
-Salernitana-Cremonese si gioca allo stadio Arechi di Salerno; arbitro di Salernitana - Cremonese è il signor Francesco Fourneau di Roma. Al VAR ci sarà invece Luca Pairetto. Nella stagione 2024/25 l'arbitro Francesco Fourneau ha diretto 6 incontri concedendo 0 rigori; ha assegnato 41 cartellini gialli e 2 cartellini rossi.
+
+I grigiorossi sono reduci dal 2-2 casalingo contro il Modena e sono quarti a quota 25. Il loro percorso racconta di dieci partite vinte, sette pareggiate e sei perse, trentaquattro reti realizzate e ventiquattro incassate. Nelle ultime cinque sfide la Salernitana ha collezionato soltanto tre punti mentre la Cremonese ne ha raccolti undici (non perde dallo scorso 8 dicembre).
+
+La gara di andata, lo scorso 26 ottobre, si concluse sul risultato di 2-1 che anche questa volta viene data favorita la Salernitana, con il segno “2” quotato mediamente 2.30. A dirigere la gara sarà Francesco Forneau della sezione di Roma 1, coadiuvato dagli assistenti Domenica Rocca di Catanzaro e Marco Emmanuele di Pisa. Il quarto uomo sarà Valerio Vogliacco di Bari. Al VAR ci sarà Luca Pairetto di Nichelino, AVAR Orlando Pagnotta di Nocera Inferiore.
